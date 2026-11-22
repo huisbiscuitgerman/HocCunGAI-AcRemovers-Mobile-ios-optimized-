@@ -1,1 +1,1 @@
-# HocCunGAI-AcRemovers-Mobile-ios-optimized-
+Tutorial soon
